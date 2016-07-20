@@ -1,0 +1,13 @@
+# Pengganti-Daihatsu-Terios
+
+Indonesia akan Kehadiran kembali  Sosok kendaraan terbaru yaitu <a href="http://www.daihatsu.co.id/">Mobil Keluarga</a> dengan Concept Daihatsu FT Yg Rumornya akan Gantikan SUV Daihatsu Terios. Pabrikan mobil brand Daihatsu telah sekian banyak kali menampilkan mobil ide terbarunya yg lebih inovatif & mutahir di pameran otomotif, termasuk juga mobil di segmentasi SUV (Sport Utility Vehicle) waktu ini tidak sedikit rumor beredar di dunia maya bahwa sesosok mobil gagasan mutahir yg di berikan nama “Daihatsu FT” digadang-gadang ialah mobil tangguh bertenaga buas yg bakal menukar mobil kekar ala Daihatsu Terios. Biarpun terhadap kenyataannya pabrikan mobil berlambang “D” ini masihlah berikhtiar memproduksi mobil lama yg di perbaharui lebih menarik lagi, dgn mengandalkan sekian banyak penyegaran baik di interior sampai eksterior ataupun tenaga mesinnya. 
+
+Kabar berkaitan hal itu pun sudah tidak sedikit mengundang perhatian publik luas, kenapa begitu? Lantaran sampai kala ini sosok mobil Daihatsu Terios yg di katakan “Mirip” Toyota Rush dapat mempunyai sesosok pengganti kepopulerannya. Tetapi info terkait “Daihatsu FT Pengganti Daihatsu Terios” masihlah belum di konfirmasi dengan cara resmi oleh pihak pabrikan Daihatsu sendiri, maka tidak sedikit peminat otomotif yg bertanya-tanya dapat elemen kedatangan mobil SUV bagus tersebut dapat menggatikan mobil apa? Lebih-lebih trend mobil Indonesia zaman sekarang ini lebih tidak sedikit yg melirik model Mini SUV. dengan demikian bukan tak mungkin seandainya ada mobil di rencanakan untuk keluaran paling baru kategori SUV akan menjadi sorotan mutlak publik peminat otomotif. 
+
+
+
+Amelia Tjandra selaku Direktur Marketing PT Astra Daihatsu motor mengungkapkan bahwa ada ide mobil Daihatsu FT Concept bakal langsung di luncurkan, tetapi tepatnya di ketika kapan tetap belum tau namun tentu jajaran mobil SUV tersebut akan meluncur ke Indonesia dalam waktu yang akan datang. 
+
+Seperti yg sudah didapati etika tradisi soal peluncuran mobil baru pasti dapat hadir bersama menyuguhkan bermacam macam feature fungsional yg lebih menarik juga trendi dari model pada awal mulanya. Sehingga tidak heran jika ada product mobil paling baru, pihak pabrikan Daihatsu senantiasa mempunyai gagasan utk menampilkan seberapa ketangguhan, kelebihan juga kemapuan mobil baru tersebut ke muka publik dgn mengadakan Event husus yg kebanyakan di selenggarakan di ruangan yg strategis. Factor ini pula terkait biar enteng dalam perihal pemasaran mobil lebih dikenal penduduk yg mana mau membesuk mobil mutahir teranyar ala Daihatsu. 
+
+Kesimpulannya : Rumor soal mobil rencana Daihatsu FT yg di klaim dapat menjadi penggati Daihatsu Terios ini masihlah “Belum Terang Kebenarannya“. Terima kasih
